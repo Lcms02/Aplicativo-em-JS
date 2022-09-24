@@ -1,1 +1,1 @@
-## Hi there this is just a game i made it took me 30 minutes and i learned somethings with this   
+## Hi there this is just a game i made it took me 30 minutes and i learned a few things with this   
